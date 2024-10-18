@@ -1,3 +1,5 @@
+![Caspar_David_Friedrich_-_Wanderer_above_the_Sea_of_Fog](https://github.com/user-attachments/assets/f76153f9-6ad7-49d0-8970-a730128a6c30)
+
 # Grablog
 
 ## Overview
